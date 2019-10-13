@@ -58,6 +58,10 @@
 - [A clever lesson in self-worth](https://www.facebook.com/diply/videos/1453994404678917)
 - [It all starts from within](https://www.facebook.com/philippinesreportcom/videos/1908189436175704)
 
+## TED Talks
+
+- [The Museum of Four in the Morning](https://www.youtube.com/watch?v=C0byYFXjRJM)
+- [Your Elusive Creative Genius](https://www.youtube.com/watch?v=86x-u-tz0MA)
 
 <details><summary>Hindi</summary>
 
